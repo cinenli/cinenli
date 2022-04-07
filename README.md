@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @cinenli
+- 👀 I’m interested in being part of the GitHub community. My son is an aspiring computer programmer and I work with really talented tech people in my day job.
+- 🌱 I’m currently keeping up with trends in technology and the latest in Microsoft tech.
+- 💞️ I’m open to networking on any topics that are mutually beneficial. 
+- 📫 You can reach me via Twitter @cenli
